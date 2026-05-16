@@ -11,4 +11,3 @@ Cold puddle where in the sweet-smelling twilight<br>
 A squatting child full of sadness releases<br>
 A boat as fragile as a May butterfly.<br>*
 <br>
----
